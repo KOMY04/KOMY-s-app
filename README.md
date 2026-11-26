@@ -1,1 +1,0 @@
-# KOMY-s-app
